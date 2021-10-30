@@ -1,3 +1,5 @@
 Encontro Nacional de Pesquisa em Filosofia.
 
-URL: enpf.ufop.br
+Site: enpf.ufop.br
+IG: @enpf.ufop
+
